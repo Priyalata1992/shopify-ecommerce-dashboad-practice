@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/4e399fdc-67ea-4843-86a6-f07e82f17177)
+
+
 
 
 ## 🛍️ Shopify E-Commerce Power BI Dashboard – Description
